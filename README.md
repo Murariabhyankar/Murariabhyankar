@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning SEO 
 - 💞️ I’m looking to collaborate on Digital marketing
 - 📫 How to reach me muraria044@gmail.com 
-- 😄 Pronouns: ...
 - ⚡ Fun fact: https://indiefolk.online/ - Check out my site where I write about music, especially Indie Folk!
 
 <!---
